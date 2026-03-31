@@ -1,1 +1,1 @@
-# Acclaimed-
+# Acclaimed
